@@ -23,5 +23,5 @@ Giá vé một chiều chưa bao gồm thuế phí
 
 Đến du lịch tại Thái Lan, du khách có thể tìm hiểu ngay những thông tin thú vị, ngắm cảnh và tham quan những địa điểm du lịch thú vị ấn tượng, du khách sẽ có cơ hội có được một hành trình đáng nhớ và đáng chiêm ngưỡng.
 
-Nếu muốn có thêm kinh nghiệm cho chuyến đi du lịch, muốn được tìm hiểu những điều bạn chưa biết, có thể nhanh chóng mua cho mình vé máy bay và nhận tư vấn hành trình tuyệt vời cho mình tại đại lý vé máy bay <a href=“http://vivatrantravel.vn/”>Viva Trần Travel</a> của chúng tôi.
+Nếu muốn có thêm kinh nghiệm cho chuyến đi du lịch, muốn được tìm hiểu những điều bạn chưa biết, có thể nhanh chóng mua cho mình vé máy bay và nhận tư vấn hành trình tuyệt vời cho mình tại đại lý vé máy bay <a href="http://vivatrantravel.vn/">Viva Trần Travel</a> của chúng tôi.
 
